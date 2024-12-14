@@ -1,1 +1,2 @@
-# hb-peach.github.io
+# [Дед Валя] (/valentin-nikitin)
+# [Полина Ябудуждать] (/polina-kameneva)
