@@ -1,2 +1,2 @@
-# [Дед Валя] (/valentin-nikitin)
-# [Полина Ябудуждать] (/polina-kameneva)
+# [Дед Валя](/valentin-nikitin)
+# [Полина Ябудуждать](/polina-kameneva)
